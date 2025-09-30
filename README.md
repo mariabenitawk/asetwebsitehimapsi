@@ -1,7 +1,6 @@
 # asetwebsitehimapsi!
-[LTT 3](https://github.com/user-attachments/assets/53ef5573-d195-4bf4-af6
+[LTT 3](https://github.com/user-attachments/assets/53ef5573-d195-4bf4-af60-a1775f9ba15e)
 <img width="1920" height="1080" alt="Untitled design (22)" src="https://github.com/user-attachments/assets/5211eabc-dfe1-4052-8c31-13b3a2bdc457" />
-0-a1775f9ba15e)
 <img width="1920" height="1080" alt="Untitled design (21)" src="https://github.com/user-attachments/assets/478e3229-08f2-4d5c-a8dd-655195451a42" />
 ![SI 4](https://github.com/user-attachments/assets/4076ba7b-4f8e-4eff-9c36-6fb5a71b99a3)
 
